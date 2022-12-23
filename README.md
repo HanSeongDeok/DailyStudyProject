@@ -1,2 +1,2 @@
 # DailyStudyProject
-EveryDay, EveryWhere, Always Study 
+☑️ EveryDay, EveryWhere, Always Study 
